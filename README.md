@@ -12,7 +12,7 @@ If you ever have a question wherever you find me, just ask! I will always answer
 
 ### 🔗 Find my content here:
 * 🎮 [Steam Guides](https://steamcommunity.com/id/NotiGV/myworkshopfiles/?section=guides)
-* 📝 [Medium Blog](https://medium.com/@NotiGV) *(Cambia este link por el real de tu Medium)*
+* 📝 [Medium Blog](https://medium.com/@NotiGV)
 * 🏆 [RetroAchievements](https://retroachievements.org/user/NotiGV)
 * 📌 [Pinterest](https://co.pinterest.com/NotiGV_/)
 * 🌳 [Linktree](https://linktr.ee/NotiGV)
