@@ -1,4 +1,4 @@
-### 🎩 "Insanity is doing the exact same thing over and over again, expecting things to change... That is crazy." 🎩
+### 🎩 "Insanity is doing the exact same thing over and over again, expecting things to change... That is crazy." 🎩🐧
 
 If you see that quote and this face :D, I'm probably nearby! :D
 
