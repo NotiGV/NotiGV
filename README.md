@@ -14,5 +14,6 @@ If you ever have a question wherever you find me, just ask! I will always answer
 * 🎮 [Steam Guides](https://steamcommunity.com/id/NotiGV/myworkshopfiles/?section=guides)
 * 📝 [Medium Blog](https://medium.com/@NotiGV)
 * 🏆 [RetroAchievements](https://retroachievements.org/user/NotiGV)
+* 👽 [Reddit](https://www.reddit.com/user/thatGVguy/)
 * 📌 [Pinterest](https://co.pinterest.com/NotiGV_/)
 * 🌳 [Linktree](https://linktr.ee/NotiGV)
