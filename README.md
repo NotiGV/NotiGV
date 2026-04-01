@@ -11,7 +11,7 @@ If you ever have a question wherever you find me, just ask! I will always answer
 ---
 
 ### 🔗 Find my content here:
-* 🎮 [Steam Guides](https://steamcommunity.com/id/NotiGV/myworkshopfiles/?section=guides)
+* 🎮 [Steam Guides](https://steamcommunity.com/id/ThatGVguy/myworkshopfiles/?section=guides)
 * 📝 [Medium Blog](https://medium.com/@NotiGV)
 * 🏆 [RetroAchievements](https://retroachievements.org/user/NotiGV)
 * 👽 [Reddit](https://www.reddit.com/user/thatGVguy/)
